@@ -5,7 +5,7 @@
 
 - 🌱 Me gusta programar, intento simepre aprender cosas nuevas.
 
-- 📫 Puedes contactarme **aallendesa.jorge@gmail.com**
+- 📫 Puedes contactarme **allendesa.jorge@gmail.com**
 
 - ⚡ Fun fact :- Soy Bartender y aficionado en el mundo del XCO.
 
