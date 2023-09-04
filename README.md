@@ -3,7 +3,7 @@
 
 <br>
 
-- 🌱 Me gusta programar, intento simepre aprender cosas nuevas.
+- 🌱 Me gusta programar, intento siempre aprender cosas nuevas.
 
 - 📫 Puedes contactarme **allendesa.jorge@gmail.com**
 
